@@ -1,4 +1,6 @@
 # NaijaHacks - TheTeslan
+THE TESLAN
+OBIMMA UCHECHUKWU PHILEMON (Philshisquare@gmail.com)
 
 NaijaHacks 2018 Hackathon 
 
